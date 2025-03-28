@@ -1,1 +1,1 @@
-# IdulFitri.github.io
+# idulfitri.github.io
